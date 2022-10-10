@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @niranjan07niran
-- 👀 I’m interested in Photography, Cinematography, Video Editing, Graphics Design, Animation & VFX,
+- 👀 I’m interested in Photo & Cinematography, Video Editing, Graphics Design, Animation & VFX,
 - 3D modelling, Architectural Visualization, Writing, Gaming, YouTube, Music, Motivating and Educating.
 - 🌱 I’m currently learning Sketchup, Python, Unreal Engine.
 - 💞️ I’m looking to collaborate on creating educational content
